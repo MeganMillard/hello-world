@@ -1,2 +1,2 @@
 # hello-world
-Just another reposiory
+What am I supposed to do? Sit around and wait for you?
